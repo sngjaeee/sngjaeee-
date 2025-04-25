@@ -1,1 +1,2 @@
-CHANCES ARE THAT
+Life feels so boring these days.
+
